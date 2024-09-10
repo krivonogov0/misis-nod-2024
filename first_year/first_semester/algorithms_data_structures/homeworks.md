@@ -1,5 +1,8 @@
 # Lessons
 
+> Кузнецов Денис ???  
+> tg: **@Sugawara_Kou**
+
 ## First lesson
 
 ### Tasks
