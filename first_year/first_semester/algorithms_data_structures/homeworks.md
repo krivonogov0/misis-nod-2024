@@ -1,6 +1,6 @@
 # Lessons
 
-> Кузнецов Денис ???  
+> Кузнецов Денис ???
 > tg: **@Sugawara_Kou**
 
 ## First lesson
